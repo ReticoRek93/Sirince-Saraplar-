@@ -1,2 +1,0 @@
-# Sirince-Saraplar-
-şirince şarapları
